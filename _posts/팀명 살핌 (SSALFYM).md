@@ -21,7 +21,8 @@
 
 ## 이지희(탁신)
 
-![배두나](C:\Users\student\Desktop\배두나.PNG)
+![dsadasd](https://user-images.githubusercontent.com/45960368/50435991-0f810900-0927-11e9-9a45-8fd5ab351720.PNG)
+
 
 
 
