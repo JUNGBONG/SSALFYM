@@ -14,7 +14,8 @@
 
 ## 이중봉(주임원사)
 
-![1545798982591](C:\Users\student\AppData\Roaming\Typora\typora-user-images\1545798982591.png)
+![rollercoster2_32_clip_01](https://user-images.githubusercontent.com/45960368/50435952-ea8c9600-0926-11e9-89ab-92e28e4c4c60.jpg)
+
 
 ### 
 
