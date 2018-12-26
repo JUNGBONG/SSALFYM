@@ -34,13 +34,15 @@
 
 ## 최보균(행복전도사)
 
-![1545799251521](C:\Users\student\AppData\Roaming\Typora\typora-user-images\1545799251521.png)
+![photo_2018-12-26_15-58-50](https://user-images.githubusercontent.com/45960368/50436029-2e7f9b00-0927-11e9-8dec-183e6445f964.jpg)
+
 
 
 
 ## 차상권(일찐)
 
-![1545799353667](C:\Users\student\AppData\Roaming\Typora\typora-user-images\1545799353667.png)
+![dsadsadsad](https://user-images.githubusercontent.com/45960368/50436071-57a02b80-0927-11e9-8f87-023ff084cd87.PNG)
+
 
 
 
