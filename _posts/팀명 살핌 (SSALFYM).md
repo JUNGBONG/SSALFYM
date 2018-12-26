@@ -26,7 +26,7 @@
 
 ## 문동식(주(酒)님사랑)
 
-![ㄱ라](C:\Users\student\Desktop\ㄱ라.jpg)
+![265a2d4f58bbe9aa2b](https://user-images.githubusercontent.com/45960368/50435845-620df580-0926-11e9-8222-c0d59c98b05b.jpg)
 
 
 
