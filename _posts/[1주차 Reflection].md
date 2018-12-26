@@ -1,3 +1,7 @@
+---
+title: 1주차 reflection
+---
+
 # [1주차 Reflection] 
 
 | 날짜  | 활동       | 느낀점                                                       |
